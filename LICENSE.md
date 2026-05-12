@@ -1,4 +1,4 @@
-# 
+# best Affinity Photo for macOS Action | AI-assisted design + export presets offers the most advanced Affinity Photo for macOS action, with AI-assisted design and export presets.
 
 
 
